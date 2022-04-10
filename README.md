@@ -4,8 +4,11 @@
 - 💞️ I’m looking to collaborate on any project that give me best understanding of computer science,
  but I would be happy to find some friend/mentor for association.
 - 📫 How to reach me 
-telegram:@izbaizbushka
+- 
+telegram:@izbaizbushka 
+
 Twitter:@izbaizbushka
+
 Instagram:@izbaizbushka
 
 E-mail: ilia.ermolovich.work@gmail.com
