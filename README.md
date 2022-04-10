@@ -5,11 +5,11 @@
  but I would be happy to find some friend/mentor for association.
 - 📫 How to reach me 
 - 
-telegram:@izbaizbushka 
+telegram: @izbaizbushka 
 
-Twitter:@izbaizbushka
+Twitter: @IzbushkoO
 
-Instagram:@izbaizbushka
+Instagram: @izbaizbushka
 
 E-mail: ilia.ermolovich.work@gmail.com
 
